@@ -1,4 +1,4 @@
-# pg-slot
+# Queenclub88 แหล่งรวมเกม PG Slot ค่ายใหญ่สุดฮิต
 
 Queenclub88 แหล่งรวมเกม PG Slot ค่ายใหญ่สุดฮิต
 https://queenclub88.com
